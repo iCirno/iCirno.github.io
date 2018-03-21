@@ -1,2 +1,2 @@
 # iCirno.github.io
-笨蛋！
+⑨:バカ
